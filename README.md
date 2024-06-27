@@ -1,1 +1,1 @@
-# ur not slick blud :3
+# erm what the sigma!
